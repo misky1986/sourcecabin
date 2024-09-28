@@ -1,3 +1,3 @@
 # My cool about section
 
-asdadasd
+Coming soon
